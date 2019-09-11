@@ -1,3 +1,4 @@
-# Welcome to my blog
+# Welcome to my webpage!
 
-I'm glad you are here. I plan to talk about ...
+Hi guys . Idk what I'm gonna do with this webpage lol...
+
